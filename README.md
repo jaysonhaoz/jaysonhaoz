@@ -19,7 +19,7 @@
 
 📫 **Reach Me**:
 - 📧 Email: zhou.hao3@northeastern.edu
-- 🔗 [LinkedIn](www.linkedin.com/in/jayson-hao-zhou)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/jayson-hao-zhou/)
 
 🌟 **Fun Fact**:
 - 🏀 A big basketball enthusiast, whether it's playing a game or following the NBA.
